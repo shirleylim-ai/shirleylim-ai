@@ -12,4 +12,5 @@ Customised AI automation and agentic systems that are governed and legally compl
 
 ## Work with me
 
-🌐 [avernixx.com](https://www.avernixx.com)
+🌐 [avernixx.com](https://www.avernixx.com)  
+✉️ [shirley_lim@avernixx.com](mailto:shirley_lim@avernixx.com?subject=Project%20enquiry%20from%20GitHub)
